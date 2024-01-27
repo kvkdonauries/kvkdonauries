@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kvkdonauries
 - 👀 I’m interested in military
-- 📫 How to reach me by mail bundeswehr.org
+- 📫 How to reach me: by mail bundeswehr.org
 
 
 <!---
